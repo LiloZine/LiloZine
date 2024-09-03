@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LiloZine
 - 👀 I’m interested in game development.
-- 🌱 I’m currently learning via Codecademy & game jams.
+- 🌱 I’m a self-taught programmer.
 - 💞️ I’m looking to collaborate on ANYTHING!
 - 📫 How to reach me? @LIL0ZINE on X
 - 😄 Pronouns: She/Her
